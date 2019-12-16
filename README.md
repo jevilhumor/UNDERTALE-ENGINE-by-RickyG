@@ -1,2 +1,2 @@
-# UNDERTALE-ENGINE-by-RickyG
-May have some problems, contact me and I'll help you fix them.
+# shit
+just, find something better to do with your life. please.
